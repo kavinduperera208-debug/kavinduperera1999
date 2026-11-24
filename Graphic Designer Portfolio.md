@@ -1,0 +1,1 @@
+[Home](#home)[Album](#album)[Works](#works)[AI Videos](#ai)[Skills](#skills)[Experience](#exp)[Education](#edu)
